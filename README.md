@@ -4,6 +4,6 @@ Banners are forever
 
 # subjective game
 
->I hope that this is not too bad. 
+> I hope that this is not too bad. 
 
 Good luck, have fun!
